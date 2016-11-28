@@ -6,4 +6,4 @@ I'm also patiently awaiting a student pack from GitHub so I can try out various 
 
 I'm not looking forward to finals but I am excited about Christmas and next semmester!
 
--Charlie
+-Charlie W 
